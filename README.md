@@ -1,0 +1,2 @@
+# hasilkan-uang
+Selalu untung
